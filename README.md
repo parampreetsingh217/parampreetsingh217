@@ -1,4 +1,4 @@
-make good new things - 5911 
+shut the noise from within and outside 
 
 <!---
 parampreetsingh217/parampreetsingh217 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
